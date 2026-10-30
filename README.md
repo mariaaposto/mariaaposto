@@ -24,7 +24,7 @@ The programme gave me a solid technical base (web development, databases, inform
 
 ### Say hi
 
-💌 LinkedIn [maria-apostolopoulou](https://www.linkedin.com/in/mariaapostolopoulou01/)
+💌 LinkedIn  [maria-apostolopoulou](https://www.linkedin.com/in/mariaapostolopoulou01/)
 
 ---
 
